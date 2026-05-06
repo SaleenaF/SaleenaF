@@ -1,5 +1,5 @@
 # 💫 About Me:
-Fourth year Computer Information Systems BcS[H]<br>I love creative projects, game dev, and web dev.<br>
+Computer Information Systems BcS[H] New Graduate<br>I love creative projects, game dev, and web dev.<br>
 
 
 ## 🌐 Socials:
